@@ -3,3 +3,5 @@
 [main rentry](https://rentry.co/tragedyends) and [encirclement rentry](https://rentry.co/encirclement)
 
 100 followers and ill go bald
+
+[D♡J Aww](https://rentry.co/burnthroughmylove)
