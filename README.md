@@ -4,4 +4,4 @@
 
 100 followers and ill go bald
 
-[D♡J Aww](https://rentry.co/burnthroughmylove)
+[I love them awwwwww](https://rentry.co/burnthroughmylove) 
