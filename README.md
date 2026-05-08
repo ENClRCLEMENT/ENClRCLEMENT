@@ -4,4 +4,4 @@
 
 100 followers and ill go bald
 
-[I love them awwwwww](https://rentry.co/burnthroughmylove) 
+Hi danny
