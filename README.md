@@ -1,6 +1,6 @@
 read my [rentry](https://rentry.co/passionfruit)..... Pls....
 
-i follow back cool people :flushed:
+ship int is ok unless its proship ok? ok...
 
 Btw 100 followers and ill go bald for my junior year
 
