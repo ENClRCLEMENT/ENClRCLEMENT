@@ -1,5 +1,7 @@
 ![](https://files.catbox.moe/t3yvc0.png)
-<<< DONT FOLLOW ME DUMB FUCK???
+
+^^^ DONT FOLLOW ME DUMB FUCK???
+genuinely lets not be dense if i have pro/darkship dni if u tolerate those "people" DNIIII 
 
 read my [rentry](https://rentry.co/passionfruit)..... Pls....
 
