@@ -6,7 +6,7 @@ genuinely lets not be dense if i have pro/darkship dni if u tolerate those "peop
 
 Ok... im actually nice ok..
 
-read my [rentry](https://rentry.co/passionfruit)..... Pls....
+read my [rentry](https://rentry.co/amendment)..... Pls....
 
 pls c+h with Me even if it isnt in my name
 
