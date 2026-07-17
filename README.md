@@ -6,4 +6,5 @@ c+h & copying/insp is ok!!!!!!!!!!!
 
 100 followers & i go bald Ok
 
-![](https://files.catbox.moe/43mx9c.jpg)
+<img src="https://files.catbox.moe/43mx9c.jpg" width="400" />
+
