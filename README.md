@@ -2,7 +2,7 @@ mexico x japan goku baby
 
 Hi read my [rentry](https://rentry.co/amendment) before u int but if not that ok....
 
-c+h & copying/insp is ok!!!!!!!!!!!
+c+h (plz), copying, or insp is ok!!!!!!!!!!!
 
 OFFTAB WARRIOR OFFTAB WARRIOR OFFTAB WARRIOR
 
