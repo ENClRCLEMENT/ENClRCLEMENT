@@ -6,7 +6,7 @@ c+h (plz), copying, or insp is ok!!!!!!!!!!!
 
 OFFTAB WARRIOR OFFTAB WARRIOR OFFTAB WARRIOR
 
-always @ ch, jjba, or roaming
+always @ countryhumans, jjba, or roaming
 
 <img src="https://files.catbox.moe/43mx9c.jpg" width="400" />
 
