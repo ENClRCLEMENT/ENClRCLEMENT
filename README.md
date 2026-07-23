@@ -6,5 +6,5 @@ OFFTAB WARRIOR OFFTAB WARRIOR OFFTAB WARRIOR
 
 always @ countryhumans, jjba, or roaming
 
-<img src="https://files.catbox.moe/43mx9c.jpg" width="400" />
+<img src="https://file.garden/aZ0auV312E5LWDWL/sss" width="400" />
 
