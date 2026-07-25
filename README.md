@@ -6,5 +6,7 @@ OFFTAB WARRIOR OFFTAB WARRIOR OFFTAB WARRIOR
 
 always @ countryhumans, jjba, spawn, roaming, or w/buddies
 
+or on a different server 🐟 im mostly on safe server 1
+
 <img src="https://file.garden/aZ0auV312E5LWDWL/sss" width="400" />
 
