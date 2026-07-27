@@ -1,6 +1,6 @@
 hi read my [rentry](https://rentry.co/amendment) before u int but if not that ok....
 
-c+h (plz), copying, or insp is ok!!!!!!!!!!! ship dniuf tho 👀
+c+h (plz), copying, or insp is ok!!!!!!!!!!! ships dniuf tho 👀
 
 OFFTAB WARRIOR OFFTAB WARRIOR OFFTAB WARRIOR
 
