@@ -12,7 +12,4 @@ or on a different server 🐟 im mostly on safe server 1
 
 [my ponies](https://rentry.co/lieutenantlickme) & [my buddies](https://28yearslater.straw.page/buddies)
 
-<img src="https://file.garden/aZ0auV312E5LWDWL/sss" width="400" />
-
-
 
