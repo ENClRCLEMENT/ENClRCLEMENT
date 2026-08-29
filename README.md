@@ -1,3 +1,5 @@
+![](https://files.catbox.moe/ps5fkx.gif)
+
 hi read my [rentry](https://rentry.co/amendment) before u int but if not that ok....
 
 c+h (plz), insp is ok!!!!!!!!!!! ships dniuf tho 👀
