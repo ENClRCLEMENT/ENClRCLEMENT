@@ -1,15 +1,8 @@
 ![](https://files.catbox.moe/ps5fkx.gif)
 
-hi read my [rentry](https://rentry.co/amendment) before u int but if not that ok....
+[rentry](https://rentry.co/amendment), [guns.lol](https://guns.lol/saiouma), [ponies](https://rentry.co/lieutenantlickme), [buddies](https://28yearslater.straw.page/buddies)
 
-c+h (plz), insp is ok!!!!!!!!!!! ships dniuf tho 👀
+pls c+th, inspo is OK! ships dniuf tho 👀
 
-OFFTAB WARRIOR OFFTAB WARRIOR OFFTAB WARRIOR
-
-always @ countryhumans, jjba, spawn, roaming, or w/buddies
-
-or on a different server 🐟 im mostly on safe server 1
-
-[my ponies](https://rentry.co/lieutenantlickme) & [my buddies](https://28yearslater.straw.page/buddies)
-
+always eng safe servers @ countryhumans, jjba, spawn, roaming, or w/buddies
 
