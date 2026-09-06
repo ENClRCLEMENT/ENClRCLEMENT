@@ -1,6 +1,6 @@
 no i dont support rentry i use adblockers ok
 
-[rentry](https://rentry.co/amendment), [gunslol](https://guns.lol/saiouma), [新](https://thragg.atabook.org), & [buddies](https://28yearslater.straw.page/buddies)
+[rentry](https://rentry.co/amendment) , [gunslol](https://guns.lol/saiouma) , [新](https://thragg.atabook.org) , & [buddies](https://28yearslater.straw.page/buddies)
 
 pls c+h, inspo is OK! ships dniuf tho 👀
 
