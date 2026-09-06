@@ -1,8 +1,8 @@
-![](https://files.catbox.moe/ps5fkx.gif)
-
 no i dont support rentry i use adblockers ok
 
-[rentry](https://rentry.co/amendment), [guns.lol](https://guns.lol/saiouma), [ponies](https://rentry.co/lieutenantlickme), & [buddies](https://28yearslater.straw.page/buddies)
+[rentry](https://rentry.co/amendment), [guns dot lol](https://guns.lol/saiouma), [atabook](https://thragg.atabook.org), & [my buddies](https://28yearslater.straw.page/buddies)
+
+![](https://files.catbox.moe/ps5fkx.gif)
 
 pls c+h, inspo is OK! ships dniuf tho 👀
 
