@@ -6,5 +6,5 @@ no i dont support rentry i use adblockers ok
 
 pls c+h, inspo is OK! ships dniuf tho 👀
 
-always eng safe servers @ countryhumans, jjba, spawn, roaming, or w/buddies
+always on eng safe servers @ countryhumans, jjba, spawn, roaming, or w/buddies
 
