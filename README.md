@@ -1,6 +1,6 @@
 [rentry](https://rentry.co/amendment) ‎ [strawpage](https://possible.straw.page)‎ ‎ [gunslol](https://guns.lol/saiouma)‎ ‎ [atabook](https://thragg.atabook.org)‎‎
 
-pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf tho 🐒
+pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf 🐒
 
 always @ ch, jjba, spawn or w/buddies
 
