@@ -6,6 +6,6 @@ pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf tho 👀
 
 mostly on eng safe servers @ countryhumans‎, ‎jjba,‎ ‎(near) spawn‎, ‎roaming,‎ ‎or‎‎ w/buddies
 
-um i hide everyone at proshit tree (NOT JOKE) and if ur ugly (<- joek)
+![](https://files.catbox.moe/yujh4w.png)
 
-![](https://files.catbox.moe/ps5fkx.gif)
+grown ass woman btw omg ur dumb as FUCK
