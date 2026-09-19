@@ -6,6 +6,4 @@ pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf tho 👀
 
 mostly on eng safe servers @ countryhumans‎, ‎jjba,‎ ‎(near) spawn‎, ‎roaming,‎ ‎or‎‎ w/buddies
 
-![](https://files.catbox.moe/yujh4w.png)
-
-grown ass woman btw omg ur dumb as FUCK
+eradicate pro/dark shippers 🤮
