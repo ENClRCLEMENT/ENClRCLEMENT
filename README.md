@@ -1,6 +1,6 @@
 im never making this pretty
 
-[rentry](https://rentry.co/amendment) ‎ [strawpage](https://possible.straw.page)‎ ‎ [gunslol](https://guns.lol/saiouma)‎ ‎ [ata](https://thragg.atabook.org)‎‎ ‎ [list](https://listography.com/artillery)
+[rentry](https://rentry.co/amendment) ‎ [strawpage](https://possible.straw.page)‎ ‎ [gunslol](https://guns.lol/saiouma)‎ ‎ [ata](https://thragg.atabook.org)‎‎ ‎ [listo](https://listography.com/artillery)
 
 pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf 🐒
 
