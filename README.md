@@ -1,12 +1,11 @@
-im never making this pretty
+[rentry](https://rentry.co/amendment) ‎ [strawpage](https://possible.straw.page)‎ ‎ [guns.lol](https://guns.lol/saiouma)‎ ‎ [atabook](https://thragg.atabook.org)‎‎ ‎ [listo](https://listography.com/artillery)
 
-[rentry](https://rentry.co/amendment) ‎ [strawpage](https://possible.straw.page)‎ ‎ [gunslol](https://guns.lol/saiouma)‎ ‎ [ata](https://thragg.atabook.org)‎‎ ‎ [listo](https://listography.com/artillery)
+pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf 🐒‎‎‎ ‎ 
 
-pls c+h‎!‎ ‎ ‎inspo is OK!‎‎‎ ‎ ships dniuf 🐒
+im always @ ch, jjba, spawn or w/buddies‎‎‎
 
-always @ ch, jjba, spawn or w/buddies
+offtab warrior . . .‎‎‎ ‎ whisp 2 interact 😳🪇
 
-offtab warrior . . . whisp 2 interact 😳🪇
+https://github.com/user-attachments/assets/64e0a111-f646-45ba-8234-597f347549b2
 
-<img width="283" height="192" alt="image" src="https://github.com/user-attachments/assets/f06ac937-d891-46a5-9710-021bad61f1ad" />
-
+interlinked [keitan](https://github.com/KeitanSoyou) and [ink](https://github.com/shikinamiiii)
