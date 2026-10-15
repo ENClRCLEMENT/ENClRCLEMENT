@@ -6,8 +6,6 @@
 
 https://github.com/user-attachments/assets/33c5e906-89aa-494e-8b32-e928295e1f1e
 
-[@keitansoyou](https://github.com/KeitanSoyou) is the wh*te one ^^
-
 </td>
 <td width="300" align="center" valign="middle">
 
@@ -20,6 +18,8 @@ pls c+h‎!‎ ‎‎inspo is OK!‎‎‎ ‎ships dniuf/iwc‎ ‎
 im always @ ch, jjba, or w/buddies‎‎‎
 
 offtab warrior!‎‎‎ ‎ whisp 2 interact 😳
+
+<< keitan is the white guy in this clip
 
 
 </td>
