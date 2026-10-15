@@ -6,6 +6,6 @@ im always @ ch, jjba, spawn or w/buddies‎‎‎
 
 offtab warrior . . .‎‎‎ ‎ whisp 2 interact 😳🪇
 
-https://github.com/user-attachments/assets/64e0a111-f646-45ba-8234-597f347549b2
+i like vd a lot VVV
+https://github.com/user-attachments/assets/33c5e906-89aa-494e-8b32-e928295e1f1e
 
-interlinked [keitan](https://github.com/KeitanSoyou) and [ink](https://github.com/shikinamiiii)
