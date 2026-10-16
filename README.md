@@ -13,14 +13,13 @@ i copy keitans layout Thank u boi :trollface:
 
 [rentry](https://rentry.co/amendment) ‎ [sp](https://possible.straw.page)‎ ‎ [gunslol](https://guns.lol/saiouma)‎ ‎ [ata](https://thragg.atabook.org)‎‎ ‎ [listo](https://listography.com/artillery)
 
-pls c+h‎!‎ ‎‎inspo is OK!‎‎‎ ‎ships dniuf/iwc‎ ‎ 
+c+h enc!‎ ‎‎inspo is OK!‎‎‎ ‎ships dniuf/iwc‎ ‎ 
 
 im always @ ch, jjba, or w/buddies‎‎‎
 
 offtab warrior!‎‎‎ ‎ whisp 2 interact 😳
 
 << keitan is the white guy in this clip
-
 
 </td>
 </tr>
