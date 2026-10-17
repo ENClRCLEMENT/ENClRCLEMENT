@@ -15,7 +15,7 @@ c+h enc,‎ ‎‎inspo is ok,‎‎‎ ‎ships dniuf/iwc‎ ‎
 
 located @ ch, jjba, or w/buddies‎‎‎
 
-offtab warrior,‎‎‎ ‎ whisp 2 int
+im an offtab warrior,‎‎‎ ‎ whisp 2 int
 
 << keitan is the white guy in this clip
 
